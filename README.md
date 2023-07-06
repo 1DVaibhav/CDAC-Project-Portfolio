@@ -21,8 +21,7 @@ With a detail-oriented mindset, strong problem-solving abilities, and excellent 
 
 ## 📫 Let's Connect!
 
-I'm excited to connect with fellow developers, collaborate on projects, and explore new opportunities. Feel free to reach out to me via email at [vdd8010@gmail.com] or connect with me on [LinkedIn](www.linkedin.com/in/
-vaibhav-d-d).
+I'm excited to connect with fellow developers, collaborate on projects, and explore new opportunities. Feel free to reach out to me via email at [vdd8010@gmail.com] or connect with me on [LinkedIn](www.linkedin.com/in/vaibhav-d-d).
 
 Let's learn, build, and make a difference together!
 
